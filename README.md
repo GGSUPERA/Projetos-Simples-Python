@@ -1,1 +1,1 @@
-# Aplicaçõa que aprendi
+# Aplicações que aprendi
